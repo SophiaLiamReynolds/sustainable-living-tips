@@ -12,3 +12,6 @@ Here are some websites and online platforms where you can find valuable resource
    - Description: Good On You provides ethical ratings for fashion brands, empowering consumers to make informed choices and support sustainable and ethical fashion.
 
 Explore these websites to discover practical tips, inspiration, and community support for your journey towards sustainable living.
+
+## Connect with me 
+- [Instagram](https://www.instagram.com/earthwarrior_sophia)
